@@ -1,1 +1,2 @@
 ALLAH is one
+Ok
