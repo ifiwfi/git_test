@@ -1,1 +1,1 @@
-ALLAH
+ALLAH is one
